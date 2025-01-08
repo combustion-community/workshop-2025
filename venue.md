@@ -10,5 +10,5 @@ A flat travel reimbursement will be available for non-local workshop participant
 
 ### Travel information
 
-The Westin Copley Place, which is the location for the main National Combustion Meeting, has discounted group rates for the NCM; please use the links provided on the [NCM page](https://combustioninstitute.wixsite.com/14th-usncm/travel). Note that the workshop will start on the morning of Saturday, March 15.
+The Westin Copley Place, which is the location for the main National Combustion Meeting, has discounted group rates ($285/night) for the NCM; please use the links provided on the [NCM page](https://combustioninstitute.wixsite.com/14th-usncm/travel) or the [direct link here](https://book.passkey.com/event/50805700/owner/251/home). Note that the workshop will start on the morning of Saturday, March 15.
 
